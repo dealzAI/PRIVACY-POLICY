@@ -1,6 +1,6 @@
 # Privacy Policy for DEAL$AI
 
-**Last Updated:** [Date]
+**Last Updated:** [11/22/2025]
 
 ## Introduction
 
